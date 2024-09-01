@@ -1,1 +1,0 @@
-# Wealthy-Blue-Parrot-React
